@@ -11,3 +11,13 @@ your profile some attention.
 
 SHowcase your best self-wheter that means a fresh-from-the-groomer glamour 
 shot or an ation shot from your last game of fetch. 
+
+## Where do I list my favorite treats?
+
+
+Open the HAwt Dawg app and click on "Edit Profile"
+
+Scroll down to the section called "Passions" and tell potential mates and friends all about 
+the treats and toys that makes your tail wag. 
+
+When you'e done, click "Save changes" to show the world. 
